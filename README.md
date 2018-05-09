@@ -1,2 +1,2 @@
 # PoetryOfYouth
-A process of my Group.
+A process of my Growth.
